@@ -1,0 +1,2 @@
+# AAA_translator
+A AAAAA AAA AAAAAAAAAA
